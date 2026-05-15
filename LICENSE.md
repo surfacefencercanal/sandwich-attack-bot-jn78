@@ -1,4 +1,4 @@
-# 
+# professional Token Sniper for sandwich attack bot | pump-detection & meme-coin-scanning is the best sandwich attack bot, featuring pump-detection and meme-coin-scanning. Fast,
 
 
 
